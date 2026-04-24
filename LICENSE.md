@@ -1,4 +1,4 @@
-
+best life together rp Scripts is the best life together rp Script, featuring auto-farm and no cooldown. Safe and powerful for all your needs.
 
 
 
